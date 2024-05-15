@@ -1,6 +1,6 @@
 This site is currently under construction pending funds for essential tools.
 
-The fundraiser for incorporation costs is at https://gofund.me/1e8a62de.
+The fundraiser for incorporation costs is [here](https://gofund.me/1e8a62de).
 
 Costs include:
 - Replacement laptop following illegal search and seizure;
