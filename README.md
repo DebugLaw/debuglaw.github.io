@@ -12,7 +12,7 @@ Costs include:
 - Anonymisation of director's residential address;
 
 Philip Lello as [Amicus Curiae](https://uk.practicallaw.thomsonreuters.com/4-502-7653)
-- Pro Se / Cui Tam 
+- [Pro Se](https://en.m.wikipedia.org/wiki/Pro_bono), [Cui Tam](https://en.m.wikipedia.org/wiki/Qui_tam), [Pro Boni Publico](https://en.m.wikipedia.org/wiki/Pro_bono)
 - [《Dieu et mon droit divin》](https://www.londresaccueil.org.uk/La-devise-de-la-monarchie-Dieu-et-mon-Droit)
 - [We wunt be druv](https://en.m.wikipedia.org/wiki/We_wunt_be_druv)
 - [Free beer?](https://en.m.wikipedia.org/wiki/Harvey%27s_Brewery)
