@@ -9,7 +9,7 @@ Costs include:
 - Registered office address;
 - Anonymisation of director's residential address;
 
-Philip Lello as Amicus Curiae, 
+Philip Lello as [Amicus Curiae](https://uk.practicallaw.thomsonreuters.com/4-502-7653)
 - Pro Se / Cui Tam 
 - [《Dieu et mon droit divin》](https://www.londresaccueil.org.uk/La-devise-de-la-monarchie-Dieu-et-mon-Droit)
 - [We wunt be druv](https://en.m.wikipedia.org/wiki/We_wunt_be_druv)
