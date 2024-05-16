@@ -15,4 +15,4 @@ Philip Lello as [Amicus Curiae](https://uk.practicallaw.thomsonreuters.com/4-502
 - [Pro Se](https://en.m.wikipedia.org/wiki/Pro_bono), [Cui Tam](https://en.m.wikipedia.org/wiki/Qui_tam), [Pro Bono Publico](https://en.m.wikipedia.org/wiki/Pro_bono)
 - [《Dieu et mon droit divin》](https://www.londresaccueil.org.uk/La-devise-de-la-monarchie-Dieu-et-mon-Droit)
 - [We wunt be druv](https://en.m.wikipedia.org/wiki/We_wunt_be_druv)
-- [Free beer?](https://en.m.wikipedia.org/wiki/Harvey%27s_Brewery)
+- [Free beer](https://en.m.wikipedia.org/wiki/Harvey%27s_Brewery) or [Freedom of Information](https://en.m.wikipedia.org/wiki/GNU_General_Public_License)?
