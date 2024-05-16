@@ -10,8 +10,7 @@ Costs include:
 - Anonymisation of director's residential address;
 
 Philip Lello as Amicus Curiae, 
-Pro Se / Cui Tam 
-《Dieu et mon droit divin》
-
-[We wunt be druv](https://en.m.wikipedia.org/wiki/We_wunt_be_druv)
-[Free beer?](https://en.m.wikipedia.org/wiki/Harvey%27s_Brewery)
+- Pro Se / Cui Tam 
+- [《Dieu et mon droit divin》]- (https://www.londresaccueil.org.uk/La-devise-de-la-monarchie-Dieu-et-mon-Droit)
+- [We wunt be druv](https://en.m.wikipedia.org/wiki/We_wunt_be_druv)
+- [Free beer?](https://en.m.wikipedia.org/wiki/Harvey%27s_Brewery)
