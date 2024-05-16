@@ -1,4 +1,4 @@
-[![Tudor Rose](https://upload.wikimedia.org/wikipedia/commons/3/3f/Tudor_Rose.svg) "The Sick Rose"](https://allpoetry.com/The-Sick-Rose)
+[![Tudor Rose](https://upload.wikimedia.org/wikipedia/commons/3/3f/Tudor_Rose.svg)<br/>[**The Sick Rose**](https://allpoetry.com/The-Sick-Rose)
 
 This site is currently under construction pending funds for essential tools.
 
