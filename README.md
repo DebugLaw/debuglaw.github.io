@@ -6,9 +6,11 @@ Costs include:
 - Replacement laptop following illegal search and seizure;
 - Replacement passport as photo ID;
 - Incorporation at [Companies House](https://www.gov.uk/government/organisations/companies-house);
-- Registered office address;(
+- Registered office address;
 - Anonymisation of director's residential address;
 
 Philip Lello as Amicus Curiae, 
 Pro Se / Cui Tam 
 《Dieu et mon droit divin》
+
+[We wunt be druv](https://en.m.wikipedia.org/wiki/We_wunt_be_druv)
