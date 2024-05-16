@@ -4,7 +4,7 @@ The fundraiser for incorporation costs is [here](https://gofund.me/1e8a62de).
 
 Costs include:
 - Replacement laptop following illegal search and seizure;
-- Replacement passport as photo ID;
+- Replacement [Bristish passport](https://www.gov.uk/get-a-passport-urgently) as photo ID;
 - Incorporation at [Companies House](https://www.gov.uk/government/organisations/companies-house);
 - Registered office address;
 - Anonymisation of director's residential address;
