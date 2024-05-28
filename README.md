@@ -1,6 +1,6 @@
 [![Tudor Rose](https://upload.wikimedia.org/wikipedia/commons/3/3f/Tudor_Rose.svg)]<br/>[**The Sick Rose**](https://allpoetry.com/The-Sick-Rose)
 
-This site is currently under construction pending funds for essential tools.
+This site is currently under construction pending funds for essential tools and aims to continue the work of the [Anglo-Saxon Chronicle](https://parker.stanford.edu/parker/catalog/wp146tq7625) ture&correct.
 
 The fundraiser for incorporation costs is [here](https://gofund.me/1e8a62de).
 
